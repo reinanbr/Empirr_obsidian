@@ -1,0 +1,31 @@
+#### levar pro trabalho 
+- [ ] bolsa
+	- [ ] bolsinha 
+		- [ ] A03 core + carregador
+		- [ ] carregador C 
+		- [ ] fone bl
+		- [ ] caderninho 
+		- [ ] carteira 
+			- [ ] identidade 
+			- [ ] pen drive 
+			- [ ] agulha chip
+			- [ ] boletos
+			- [ ] Chaves 
+		- [ ] bolsa tec
+		- [ ] pincéis 
+		- [ ] canetas
+		- [ ] S9
+	- [ ] marmita 
+	- [ ] caderno 
+	- [ ] pasta de folhas azul
+	- [ ] folhas
+	- [ ] prancheta 
+	- [ ] bolsa higiene 
+		- [ ] escova + pasta
+		- [ ] creme suvaco
+		- [ ] Anti transpirante 
+		- [ ] creme pele
+	- [ ] lanche 
+	- [ ] garrafa água
+	- [ ] pozinhos
+	- [ ] 

@@ -1,0 +1,88 @@
+
+- produza e faça suas produções lucrar pra você.
+	- para produzir muito e muito bem, você precisa de 
+		- saúde, higiene, independência e privacidade 
+		- auto estima elevada 
+		- rotina 
+		- um carro
+		- uma maletinha hacker pra levar pros canto
+		- ferramentas como
+			- Pc bom e potente (i5 12th ou Ryzen 7 U5)
+				- vaio R7
+				- book 2 i5
+				- IdeaPad 3i R7
+				- 
+			- cadeira presidente 
+			- teclado coding
+				- Multilaser bl 
+				- RGB 
+				- minimalista 
+				- coding
+			- base para os pés
+			- hack/cômoda 
+			- suporte para notebook 
+			- Pc desktop R7 
+			- outro mini Monitor pra levar pros canto
+			- monitor 22" IPS pra mesa
+			- microondas 
+			- muita comida
+			- tablet
+				- tab s6 lite 
+				- iPad
+			- celular
+				- S9
+				- poco F5 
+				- s23 ultra
+			- watchSmart 
+				- hylou 
+			- fone 
+				- hcy HT13
+				- Lenovo gzm
+			- headset usb
+			- gamePad 
+			- um quarto fechado só pra mim
+			- uma estante com os meus livros
+			- quadros nas minhas paredes
+			- ar condicionado 
+			- paredes brancas
+			- telão no meu quarto para assistir na minha cama
+			- +2 monitores pra desktop
+		- uma namorada tão inteligente quanto eu
+		- uma guria +- só pra transar e falar de minhas coisas 
+		- servidores 
+			- hostinger 
+			- vercel 
+			- python anywhere 
+			- AWS 
+		- estudar muito
+			- dev
+				- programação 
+					- algoritmos 
+					- hacking 
+				- Linux 
+					- Bash 
+					- construção de sistemas 
+				- redes
+					- construção de provedores 
+				- servidores
+					- de internet 
+					- construção de domínios 
+				- Proxy's 
+				- segurança de sistemas 
+				- Proxy's de validação
+				- certificados ssl
+				- VPN 
+				- ssh
+				- outros conceitos avançados
+			- acadêmico 
+				- leitura de livros, textos e citações 
+				- escrita de artigos do que você já sabe, de resumos, de manuais, de notas de aulas, de anotações importantes e de depoimentos
+		- estravassar sua criatividade através da arte em quesitos de
+			- criação de histórias 
+			- Designs e artes
+			- músicas e cover 
+			- teatro e extroversão 
+			- desenhos
+			- escrita de textos
+- morar só 
+- tenha sua vida ao lado da garota mais inteligente de sua vida 

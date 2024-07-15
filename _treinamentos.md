@@ -1,0 +1,8 @@
+## corpo
+
+## voz
+
+## mente 
+
+## habilidades 
+

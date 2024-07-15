@@ -1,0 +1,28 @@
+- Artigos em Blog e em revisitas acadêmicas 
+- empresas de internet e da internet 
+- bibliotecas de linguagens 
+- sites bastantes usados no mundo
+- apis bastantes usadas
+- vídeos de programação, comentários inteligentes, coisas de nerd, gameplay e de minha vida
+- artigos e resumos sobre programação 
+- falar em inglês, francês, sueco, alemão, espanhol, dinamarquês, latin.
+- bots esplêndidos e bastante usados
+- resumos ótimos e incríveis 
+- manuais para tudo que já produzir 
+- livros incríveis e sendo vendidos em todo o mundo divulgando o que sei com histórias incríveis e únicas 
+- livros didáticos divulgando o que sei
+- ser uma pessoa que usa a psicologia ao seu favor e que não é aleatória 
+- produções incríveis como cientista de dados e como programador 
+- criador de simulações incríveis 
+- produções em todas as línguagens.
+- produções incríveis em redes sociais demonstrando o meu poder criativo, tocando nos pontos de produção presentes alí dos quais mais gostei e vi que tinha mais foco do povo.
+- criação de sites realmente incríveis, diferentes e revolucionários como fóruns, redes sociais, jogos e coisas do tipo 
+- frameworks divinos
+- empresa de tecnologia pique Apple 
+- ser bodybuilder natural
+- ter saúde 
+- ter uma família incrível e totalmente inteligente.
+- um formado em física, com mestrado em física computacional, doutor em otimização de Códigos e posDoc em IA.
+- a mulher de minha vida ou tá no Canadá ou na Dinamarca 
+- **criar e produzir coisas que melhore a vida e a condição de vida das pessoas em todo o mundo** 
+- 

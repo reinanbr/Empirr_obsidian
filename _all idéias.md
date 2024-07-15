@@ -1,0 +1,24 @@
+**20/04**
+- [ ] simulação vídeo de monte carlo para o número pi
+- [ ] simulação vídeo de orbita 
+**21/04**
+- [ ] simulação dos 3 corpos com setas de vetores 
+- [ ] site sistema que guarda ideias de acordo com a data 
+	- [ ] um diário em cima disso
+	- [ ] um wallet tbm
+	- [ ] e atividades feitas tbm
+	- [ ] além da evox 
+	- [ ] e de projetos entregues tbm
+- [ ] criar logo o livre_arbitrio para colocar os meus apps alí.
+- [ ] criar contas para lucro
+	- [ ] cortes podcast 
+	- [ ] newsletter 
+		- [ ] notícias 
+		- [ ] astronomia
+		- [ ] ciências
+		- [ ] geek
+	- [ ] Maria Fifi
+	- [ ] +18
+	- [ ] compras
+	- [ ] coding 
+	- [ ] hacking 

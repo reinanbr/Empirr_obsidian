@@ -1,0 +1,2 @@
+1. Não repreenda nenhum sofrimento que você já passou. Abrace todos eles. Pois são eles que fazem ser o que você é hoje. O indestrutível que você é hoje. Abrace todos.
+2. Não altere o significado das coisas que aconteceram em seu passado. Elas são o que são. Análise e você verá como realmente é, pois sua mente ama a sinceridade acima de tudo. É só assim que avançamos.

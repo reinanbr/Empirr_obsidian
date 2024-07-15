@@ -1,0 +1,59 @@
+- [ ] portfólio com dados de acessos atualizado em cada projeto, com meus sites, libs e apps
+- [ ] Github arrumado e organizado
+- [ ] planeta vitruviano deixando claro os meus principais projetos
+- [ ] SaaS 
+- [ ] organizar todos os meus códigos livres em pastas no Github
+- [ ] levar as contas para o kawai, tik tok e twitter 
+- [ ] organizar meus notebooks no reinanbrNotebooks
+- [ ] colocar trabalhos envolvendo todos os códigos em seu Github e deixando isso nítido na página inicial do seu Github 
+- [ ] ajeitar o seu LinkedIn
+- [ ] as organizações de notebook do readme do reinanbrNotebooks dever ser no pique 
+	- Julia
+		- processing images
+		- physics simulations 
+		- other science simulations 
+		- data science plots and simulations 
+			- blinx
+		- IA works
+		- code processing
+	- python 
+		- processing images
+		- physics simulations 
+		- other science simulations 
+		- data science plots and simulations 
+			- blinx
+		- IA works
+		- code processing 
+	- R
+		- processing images
+		- physics simulations 
+		- other science simulations 
+		- data science plots and simulations 
+			- blinx
+		- IA works
+		- code processing
+- [ ] colocar essas coisas de cima na parte de notebooks do meu Github principal 
+- [ ] escreva artigos Dev de como se deve fazer as produções que você já e de como deve fazer as que você ainda vai e planeja fazer
+- [ ] fazer Designs tops e todas para os sites e deixar eles prontos
+- [ ] encher o math.phy_ de resoluções de diferentes e mais diversas integrais.
+- [ ] publicar Artigo do random Walk no medium e em PDF pra Cícero 
+	- [ ] simples
+	- [ ] lagevin 
+	- [ ] foker-plank
+	- [ ] difusão e Einstein 
+- [ ] adicionar na prancheta: estatística, métodos de física matemática Avançada, física/mecânica quântica 
+- [ ] artigo Medium: número mais perfeito de todos (para mim): constante de Euler Mascheroni
+- [ ] criar um portifólio potente 
+- [ ] junte 500 contos extra pra pagar teu servidor
+- [ ] guardar os seus livros e PDF no drive 
+	- [ ] matemática 
+	- [ ] psicologia
+	- [ ] física 
+	- [ ] programação 
+	- [ ] filosofia 
+	- [ ] línguas 
+- [ ] colocar as minhas notas aulas coloridas escritas a mão no drive 
+- [ ] guardar meus Apps no webvitruvia
+- [ ] guardar todos os meus trabalhos no webvitruvia 
+- [ ] // os meus trabalhos hacker no jzsmatrix/livrearbitrio
+- [ ] juntar todas as suas contas.

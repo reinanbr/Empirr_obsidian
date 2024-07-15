@@ -1,0 +1,2 @@
+- o som de ia deve ser usado apenas para vídeos descritivos, como aulas, informações de conteúdos e noticiários 
+- vídeos de frases é só a frase mesmo com som no fundo.

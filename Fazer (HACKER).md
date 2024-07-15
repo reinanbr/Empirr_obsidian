@@ -1,0 +1,13 @@
+- [ ] script ddos Madara (shinra tensei)
+	- [ ] Rust
+	- [ ] go
+	- [ ] Elixir 
+	- [ ] Ruby
+	- [ ] C++/C
+	- [ ] Bash
+	- [ ] Perl
+	- [ ] Fortran
+	- [ ] Python 
+	- [ ] Java
+	- [ ] TypeScript
+

@@ -1,0 +1,2 @@
+**01/05**
+- tudo em mim é simplesmente natural. Toda minha ânsia de produzir e fazer o que faço é natural desde minha infância. Não forço nada, simplesmente sai e é meu dever, usar isso ao máximo! Se eu forçar, não sai nada, eu tenho que canalizar e deixar sair isso do jeito que tem que sair e no máximo do máximo. Não posso prender nada e nem devo. E para isso, tenho que ter os melhores equipamentos possíveis para produção e estudos e melhor organização de tempo e disciplina possível, para poder sair tudo do jeito que o meu eu quer.

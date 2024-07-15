@@ -1,0 +1,4 @@
+- [ ] excluir whatsapp do chip da vivo 
+- [ ] portabilidade pelo chip da vivo
+- [ ] ativação plano easy
+- [ ] concertar problema whatsapp do S9

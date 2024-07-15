@@ -1,0 +1,9 @@
+**20/03**
+Tua pele macia, sobre a escuridão da noite. Presa em meu quarto, me faz regorjizar por sua presença. Vê-la em minha cama despida, vê-la em total domínio meu, olhando para mim, com os brilhando ouro, esperando que eu faça algo. Ti, oh minha doce fórmula de carbono e fogo, és única em todo o universo. São o ser mais agraciado entre os seres da existência por ter ti encontrado e em tê-la comigo em meu íntimo. Que prazer é dividir meu íntimo contigo. Que prazer é ter o meu calor dividido ao teu e assim ter sua alegria e felicidade com isso. Vê-la contente e feliz estando comigo e com que eu faço em relação a ti me dá um prazer muito maior do que o prazer carnal pode proporcionar. Ver você ansiar por me ter, é o melhor dos prazeres que eu posso sentir em toda minha vida. Você, oh ser divino que me dá a mesma alegria de ver o nascer do Sol quente em meio ao frio, dando cores e luz às coisas de todas as manhãs, você és única e bela para mim. 
+Não ti quero sempre comigo, nem penso em ti oferecer a minha vida como companhia, nem penso em ti fazer terminar com quem estás agora, mas o desejo a ti possuo isso é fato, mas não és a ponto de condenar vidas por isso. 
+Espero a chance de tê-la cmg.
+*d.m.*
+
+**21/03**
+Vendo-a em minha cama, deitada rindo para mim, como se eu fosse toda sua fonte de felicidade, eu a declaro e falo para ti, que você é sim uma das garotas mais lindas que já conheci em minha vida. Ti puxo para o meu colo, com você em sua roupa de dormir básica aberta, com pano branco de seda, com mangas de rendas e detalhes bordados como se fossem roupas de dormir para um anjo, eu ti pego em meus braços, e a declaro como uma das mais belas da minha existência, e a beijo com beijo de carinho e ternura, e falo, que você é isso, mesmo sendo um pouco tapada de bom senso das coisas.
+*d.k.*

@@ -1,0 +1,51 @@
+**10/03/24**
+## Dev
+- [ ] colocar no rodapé do meu Git, as configurações básicas e Scripts de configuração, instalação, manuais de instalação e configuração de ecossistemas para diferentes tipos de produção.
+	- ecossistemas em OS
+		- [ ] sistema básico JezuisMatrix
+	- Ecossistemas de DevOps
+		- [ ] kubernetes 
+	- libs
+		- [ ] Pipy
+		- [ ] Nodejs
+		- [ ] Dart
+		- [ ] PHP 
+	- modelos básico próprio de sistemas MVC em diferentes linguagens e frameworks
+		- python 
+			- [ ] Sockets
+			- [ ] Flask
+			- [ ] Django
+		- Java
+			- [ ] Spring
+		- Go
+			- [ ] Net/http
+			- [ ] gim
+		- Rust
+			- [ ] Rocket
+			- [ ] Actix 
+		- C#
+			- [ ] Blazor
+			- [ ] .Net
+		- C++
+			- [ ] Sockets
+			- [ ] http io
+		- C
+			- [ ] Sockets
+			- [ ] http io
+		- Nodejs
+			- [ ] react
+			- [ ] Next
+			- [ ] Nest
+			- [ ] Angular
+			- [ ] Vue
+			- [ ] Express
+		- Elixir
+			- [ ] Net
+		- PHP
+			- [ ] Vitruvia
+			- [ ] Laravel
+		- Ruby
+			- [ ] rails
+		- 
+		- Delphi 
+

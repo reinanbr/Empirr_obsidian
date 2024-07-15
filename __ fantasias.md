@@ -1,0 +1,3 @@
+**27/05**
+	Wiliane ->
+		Eu imagino está em minha casa, treinado, com músculos, ganhando bem graças a minha rotina de produção. Convido ela para vim me visitar. Eu deixo-a sentar no pé de minha cama e então vou até ela, para me satisfazer com ela, no meu jeito, seja colocando suas pernas sobre meus peitos, ou indo de frente pra ela, ou ela sentando em mim, ou ela em pé de costas para mim, com a coluna abaixada, ou de 4 msm.
